@@ -1,9 +1,7 @@
 <div align="center">
- " I let the beast in and then, i even tried forgiving him, "
-<img src="https://files.catbox.moe/sdtadp.png">
- <br>
- " but its too soon . "
+my shit broke so i'll redo this soon
 <br>
+ call me lawrence , zanka or marvin (or any name if we've been friends in the past)
 <br>
 <br>
 ♡

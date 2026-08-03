@@ -15,5 +15,11 @@ n1 enjin fan (˶˃ ᵕ ˂˶)
 ♡
 <br>
 <br>
+ 
+[​🇷​​🇪​​🇳​​🇹​​🇷​​🇾​](https://rentry.co/feinbergmc) [**​🇬​​🇺​​🇳​​🇸​​🇱​​🇴​​🇱​**](https://guns.lol/borle) [​🇦​​🇹​​🇦​
+](https://wemmbu.atabook.org) [**ᴅɪʀᴇᴄᴛᴏʀʏ**](https://rentry.co/feinbergs)
+
+<br>
+<br>
 
 ![](https://files.catbox.moe/sh9ggn.jpg)

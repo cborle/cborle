@@ -15,6 +15,6 @@
 
 <br>
 
-![](https://komarev.com/ghpvc/?username=cborle&style=plastic&label=✦&color=731A06)
+![](https://komarev.com/ghpvc/?username=cborle&style=plastic&label=✦&color=000000)
 
 [@cipherites](https://github.com/cipherites) fabricated images. im innocent.

@@ -5,9 +5,9 @@
 ❛❛   your lifes work is dirtied  
         ‎ ‎ ‎ ‎ by the fools who adore you ❜❜ ♡
 
-‎‎[​01](https://rentry.co/feinbergmc) [**​02**](https://guns.lol/borle) ―
+‎‎[​rentry](https://rentry.co/feinbergmc) [**​gunslol**](https://guns.lol/borle) ―
 <br>
-‎― [​03​](https://wemmbu.atabook.org) [**04**](https://rentry.co/feinbergs)
+‎― [​atabook​](https://wemmbu.atabook.org) [**direct**](https://rentry.co/feinbergs)
 
 <br>
 

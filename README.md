@@ -1,6 +1,6 @@
 <div align="center">
 
- <img src="https://file.garden/Z8TXp-3deXuAgdBv/Untitled25_20260810185819.png" alt="" width="350">
+ <img src="https://file.garden/Z8TXp-3deXuAgdBv/HGeofVCb0AAkDB9.jpe" alt="" width="350">
 
 ❛❛   your lifes work is dirtied  
         ‎ ‎ ‎ ‎ by the fools who adore you ❜❜ ♡
@@ -13,7 +13,13 @@
 
 <br>
 
-[౨ৎ](https://github.com/pt-fashion) ponytowns enjin
+<summary>byi</summary>
+
+౨ৎ my special interest is minecraft speedrunning. 
+feel free to ask about anything.
+my favourite runners are feinberg fruitberries couriway silverrruns
+i love couriberg and fb duo, and canada duo.
+any other mcsr fans heavily encouraged to int. but be aware of my dni.
 
 <br>
 
@@ -22,5 +28,5 @@
  
 <summary>byi</summary>
 
-i have autism, depression and an identity disorder. i have depressive states where i go offline for a while, or won't talk to alot of people. i'm not ignoring you, just taking time so i dont burn myself out. feel free to message or sit with me, just be wary that i might not respond as soon as possible. this usually doesn't apply to close friends. i dont like ignoring people, so when i can respond i will ^w^. 
+i have autism, depression and an identity disorder. i sometimes do not respond for a while or do not talk to you for a while. i do not hate you. i just find it hard to dm people first. if you have an issue with this, its fine. close friends are usually fine, but sometimes i do drift away. apologies if i do this, im just busy and don't have alot to say sometimes.
 

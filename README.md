@@ -13,13 +13,16 @@
 
 <br>
 
-<summary>byi</summary>
+<details>
 
-౨ৎ my special interest is minecraft speedrunning. 
+<summary>౨ৎ</summary>
+
+my special interest is minecraft speedrunning. 
 feel free to ask about anything.
 my favourite runners are feinberg fruitberries couriway silverrruns
 i love couriberg and fb duo, and canada duo.
 any other mcsr fans heavily encouraged to int. but be aware of my dni.
+
 
 <br>
 

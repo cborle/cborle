@@ -1,5 +1,7 @@
 <div align="center">
 
+dont associate me with past drama please. ive moved on.
+
  <img src="https://file.garden/Z8TXp-3deXuAgdBv/HGeofVCb0AAkDB9.jpe" alt="" width="350">
 
 ❛❛   your lifes work is dirtied  

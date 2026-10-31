@@ -4,7 +4,7 @@ ac : Ainz826715
 
  <img src="https://file.garden/Z8TXp-3deXuAgdBv/Untitled27_20261031222157.png" alt="" width="350">
 
-❛❛   lost my fight with fate  ,
+❛❛   lost my fight with fate  ,    
         ‎ ‎ ‎ ‎ a tug-of-war of leave and stay ❜❜ ♡
 
 ‎‎[main​](https://rentry.co/feinbergmc) [**​gunslol**](https://guns.lol/borle) ―

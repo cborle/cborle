@@ -1,11 +1,11 @@
 <div align="center">
 
-dont associate me with past drama please. ive moved on.
+ac : Ainz826715
 
- <img src="https://file.garden/Z8TXp-3deXuAgdBv/HGeofVCb0AAkDB9.jpe" alt="" width="350">
+ <img src="https://file.garden/Z8TXp-3deXuAgdBv/Untitled27_20261031222157.png" alt="" width="350">
 
-❛❛   your lifes work is dirtied  
-        ‎ ‎ ‎ ‎ by the fools who adore you ❜❜ ♡
+❛❛   lost my fight with fate  ,
+        ‎ ‎ ‎ ‎ a tug-of-war of leave and stay ❜❜ ♡
 
 ‎‎[main​](https://rentry.co/feinbergmc) [**​gunslol**](https://guns.lol/borle) ―
 <br>
